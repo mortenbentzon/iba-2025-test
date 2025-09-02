@@ -5,3 +5,5 @@ Den var sulten, og mens den snuste rundt mellem træerne, dukkede der pludselig 
 
 
 Den tøvede et øjeblik, snusede nysgerrigt til nødden, før den forsigtigt tog den op i munden og kiggede sig omkring, som om nogen måske holdt øje.
+
+Men skoven var stille, kun vinden hviskede i grenene, og nysgerrigheden trak Gitten længere ind mellem de gamle, knirkende stammer.
